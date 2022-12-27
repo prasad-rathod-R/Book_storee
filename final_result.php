@@ -1,0 +1,1 @@
+Your Order Is Successfully Placed And It will Shipped Within Hour
